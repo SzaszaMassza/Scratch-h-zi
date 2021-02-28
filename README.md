@@ -1,1 +1,1 @@
-# Scratch-h-zi
+# Scratch-hazi
